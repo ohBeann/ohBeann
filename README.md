@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ohBeann
+- 👀 I’m interested in learning JS, specifically Discord JS and frameworks alike.
+- 🌱 I’m currently learning Klasa framework
+- 💞️ I’m looking to collaborate on something, unsure what.
+- 📫 How to reach me my discord is Bean.#0002 if you wanna add
