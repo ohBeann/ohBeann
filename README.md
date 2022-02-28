@@ -1,1 +1,1 @@
-A self-taugh student who is learning JavaScript, HTML, and C#
+me when ur mom when i when you
